@@ -1,0 +1,1 @@
+# BDA-2205_Karimuratova_Abaidulina_Seitkhan_Iranuly
